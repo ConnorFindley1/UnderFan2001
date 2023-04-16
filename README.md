@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @UnderFan2001
+- 👋 Hi, I’m @ConnorFindley1
 - 👀 I’m interested in ... Coding, Existence, Guitar, and Piano
 - 🌱 I’m currently learning ... Coding, Existence, and Guitar
 - 💞️ I’m looking to collaborate on ... Coding and Existence
